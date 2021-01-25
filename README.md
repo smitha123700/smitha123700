@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about JavaScript related projects.
 - 📫 How to reach me: smitha_svaram@yahoo.com.au or smitha.shankavaram@gmail.com
 - 😄 Pronouns: she her
-- ⚡ Fun fact: ...
+- ⚡ Others: Own a business selling eco friendly gift wrapping alternatives.
 -->
